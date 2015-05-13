@@ -7,6 +7,6 @@ The network has ordered the first 4 episodes:
 1.  "The Day After" -- Ella, Eliana
 2.  "Cafeteria Drama" -- Makoto, Wesley
 3.  "First Man Down" -- Charlie, Jack, Carisa
-4.  "All in the Family" -- Nicky, Emily
+4.  "All in the Family" -- Nicky, Emily (THIS IS US!!)
 
 Get to work :fist:
