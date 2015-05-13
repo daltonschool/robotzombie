@@ -75,3 +75,10 @@ We are going to look at collaboration best practices and tools.  :bowtie:
 ### our project
 
 github.com/daltonschool/robotzombie
+
+todo:
+
+1.  create a github account
+2.  creata a slack account
+3.  goto try.github.io
+
