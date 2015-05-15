@@ -32,6 +32,8 @@ Still recovering from their lost man, the roboticists
   Once they were upstairs and safe they mourned their losses of their valiant friends who died to the hideous 
   zombies.
 
+  Zach and Andrew wrapped their arms around the robot and began to cry softly into agent 4174. In the midst of their greiving, the door was flung open! In flew the previously-dead students on Nathaniel's batman shoes. 
+  "When you killed the zombies, we came back to life!" shouted a student.
   
   where we’re going with this:
   - and all of a sudden the kids who were supposidely turned come in because the zombies that turned them died
