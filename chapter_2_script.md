@@ -32,9 +32,11 @@ Julian says, "guys this is like reaallly reaally bad," in his hispanic accent to
 
 Makoto and Daniel, still working on the robot, seem to make a great achievement. 
 The kids fear for their lives as the zombies chase them around the cafeteria, but come up with a plan:
-They close off the cafeteria doors and lock the zombies inside to buy Mattori and Daniel some time while they are fixing the robot
+They close off the cafeteria doors and lock the zombies inside to buy Mattori and Daniel some time while they are fixing the robot.
 
-Finally, in an interesting moment, Mattori and Daniel figure out how to fix their power issue by hooking it up to the special ihone charger that Alex was showing off to everyone
+Looking for a power source, Liam realizes his phone is out of power. In a fit of desperation, he shouts "PHONE CHARGER!" very loudly despite fears of attracting zombies. As everyone tries to shush him, he looks over at a nearby table and finds an iPhone charger sitting in plain sight.
+
+Finally, in an interesting moment, Mattori and Daniel figure out how to fix their power issue by hooking it up to Liam's new iPhone charger.
 
 They sit outside the cafeteria with the robots, waiting for the zombies to break through the door
 
