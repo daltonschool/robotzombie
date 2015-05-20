@@ -41,8 +41,8 @@ Still recovering from their lost man, the roboticists
   
 In the midst of their greiving, the door was flung open! In flew the previously-dead students on Nathaniel's batman shoes. The students stared in disbelief, this couldn't be real life. 
 
-  "What happened?" questioned _____ . 
-  "I'm so confused" stated ______ . 
+  "What happened?" questioned Carisa. 
+  "I'm so confused" stated Jack. 
   
   "When you killed the zombies, we came back to life!" shouted Charlie.
   
