@@ -4,7 +4,9 @@ authors:
 Emily Cohen 
 Nicky Cahill
 
-Still recovering from their lost man, the roboticists 
+  Still recovering from their lost man, the roboticists 
+  
+  THIS IS TRANSITION FROM CHAPTER 3
 
 
   They knew they couldn't hold out much longer. The zombies were approaching and although they did know the 
@@ -51,24 +53,20 @@ Still recovering from their lost man, the roboticists
   "The is all your fault" Yelled Andrew.
   "What are you talking about?" exclaimed Zach.
   
-  The two continued in this manor until Dillon emerged from the crwod of students observing the fight. 
+  The two continued in this manor until Dillon emerged from the crowd of students observing the fight. 
   
   "Guys," Dillon said as the voice of reason. "We need to stop arguing. We only have each other now." 
   
-  The three boys stared at their disheveled robot.
-  
-  
-In the midst of their greiving, the door was flung open! In flew the previously-dead students on Nathaniel's batman shoes. The students stared in disbelief, this couldn't be real life. 
+  Zach and Andrew looked up. They stopped bickering and tears filled all three of their eyes as they stood there and stared at their disheveled robot. In the midst of their greiving, the door was flung open! In flew the previously-dead students on Nathaniel's batman shoes. The students stared in disbelief, this couldn't be real life. 
 
   "What happened?" questioned Carisa. 
   "I'm so confused" stated Jack. 
   
-  "When you killed the zombies, we came back to life!" shouted Charlie.
+  "While you all were busy fighting over your robot, Makoto made a dezombifier. Flying through the air on his batman wings, Nathaniel shot us with the gun and here we are!" exclaimed Ben. 
   
   
-  
-  where we’re going with this:
-  - and all of a sudden the kids who were supposidely turned come in because the zombies that turned them died
-    ( i know very vampire esque)
+  WE NEED A LOT OF CONVERSATION HERE!! <- just highlight funny personalities a #classic roboitcs build session-esq scene
+
+
   - then finally Charlie MSW and Gordie walk in, and they all sit as one happy family
 
