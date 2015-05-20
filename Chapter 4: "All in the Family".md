@@ -38,11 +38,25 @@ Still recovering from their lost man, the roboticists
 
   Zach and Andrew wrapped their arms around the robot and began to cry softly into agent 4174.
   
-  "Oh! How scared I was!" cried Zach as Andrew pulled the robot in for a closer embrace.  Zach started to pull the robot to himself, however; Andrew also wanted to hug the robot.
+  "Oh! How scared I was!" cried Zach as Andrew pulled the robot in for a closer embrace. 
+
   "Stop let me hug the robot!" Shouted Zach
-  "But I also want to hug the robot."  Said Andrew while pulling the robot away from Zach.  Zach then grabs onto one side of the robot and pulls with all of his might.  The robot, already weakened after being attacked by the zombies, was not strong enough to handle being fought over by Andrew and Zach.  It ripped into two parts and Andrew and Zach both fell backwards.
-  "Look at what you have done!" exclaimed Andrew.  Suddenly Dillon walks into the room.
-  "Guys.  You have just killed our robot all that we have now is each other.  We should all relax and be happy that we survived a zombie apocalypse."  They all then hug crying because they just killed their own robot.  
+  
+  "GO AWAY. We're having a moment"  Said Andrew, stroking his baby.
+  
+  "ROBOT. ROBOT. ROBOT." repeated zach as he scrambled around Andrew trying to touch the robot. 
+  
+  Zach took one final lunge for the robot and in an effort to maintain sole posseision, Andrew swung around and the robot flew through the air. Every stood in awe, staring as agent 4174 was flung across the room. As it plunged to it's death, Andrew and Zach began to yell.
+  
+  "The is all your fault" Yelled Andrew.
+  "What are you talking about?" exclaimed Zach.
+  
+  The two continued in this manor until Dillon emerged from the crwod of students observing the fight. 
+  
+  "Guys," Dillon said as the voice of reason. "We need to stop arguing. We only have each other now." 
+  
+  The three boys stared at their disheveled robot.
+  
   
 In the midst of their greiving, the door was flung open! In flew the previously-dead students on Nathaniel's batman shoes. The students stared in disbelief, this couldn't be real life. 
 
