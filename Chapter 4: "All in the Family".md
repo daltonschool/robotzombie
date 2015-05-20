@@ -38,7 +38,8 @@ Still recovering from their lost man, the roboticists
 
   Zach and Andrew wrapped their arms around the robot and began to cry softly into agent 4174.
   
-  "Oh! How scared I was!" cried Zach as Andrew pulled the robot in for a closer embrace. 
+  "Oh! How scared I was!" cried Zach as Andrew pulled the robot in for a closer embrace.
+  
   
 In the midst of their greiving, the door was flung open! In flew the previously-dead students on Nathaniel's batman shoes. The students stared in disbelief, this couldn't be real life. 
 
