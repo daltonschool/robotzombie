@@ -2,7 +2,7 @@ Episode 4:
 
 authors:
 Emily Cohen 
-Nicky
+Nicky Cahill
 
 Still recovering from their lost man, the roboticists 
 
