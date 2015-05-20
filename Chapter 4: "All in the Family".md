@@ -1,7 +1,7 @@
 Episode 4:
 
 authors:
-Emily Cohen
+Emily Cohen (primary author)
 
 
 Still recovering from their lost man, the roboticists 
