@@ -42,8 +42,7 @@ Still recovering from their lost man, the roboticists
   "Stop let me hug the robot!" Shouted Zach
   "But I also want to hug the robot."  Said Andrew while pulling the robot away from Zach.  Zach then grabs onto one side of the robot and pulls with all of his might.  The robot, already weakened after being attacked by the zombies, was not strong enough to handle being fought over by Andrew and Zach.  It ripped into two parts and Andrew and Zach both fell backwards.
   "Look at what you have done!" exclaimed Andrew.  Suddenly Dillon walks into the room.
-  "Guys.  You have just killed our robot all that we have now is each other.  We should all relax and be happy that we survived a zombie apocalypse."  They all then hug crying because they just killed their own robot.
-  
+  "Guys.  You have just killed our robot all that we have now is each other.  We should all relax and be happy that we survived a zombie apocalypse."  They all then hug crying because they just killed their own robot.  
   
 In the midst of their greiving, the door was flung open! In flew the previously-dead students on Nathaniel's batman shoes. The students stared in disbelief, this couldn't be real life. 
 
