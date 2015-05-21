@@ -46,9 +46,9 @@ Nicky Cahill
   
   "GO AWAY. We're having a moment"  Said Andrew, stroking his baby.
   
-  "ROBOT. ROBOT. ROBOT." repeated zach as he scrambled around Andrew trying to touch the robot. 
+  "ROBOT. ROBOT. ROBOT." repeated Zach as he scrambled around Andrew trying to touch the robot. 
   
-  Zach took one final lunge for the robot and in an effort to maintain sole posseision, Andrew swung around and the robot flew through the air. Every stood in awe, staring as agent 4174 was flung across the room. As it plunged to it's death, Andrew and Zach began to yell.
+  Zach took one final lunge for the robot and in an effort to maintain sole posseision, Andrew swung around and the robot flew through the air. Everyone stood in awe, staring as agent 4174 was flung across the room. As it plunged to it's death, Andrew and Zach began to yell.
   
   "The is all your fault" Yelled Andrew.
   "What are you talking about?" exclaimed Zach.
@@ -62,7 +62,7 @@ Nicky Cahill
   "What happened?" questioned Carisa. 
   "I'm so confused" stated Jack. 
   
-  "While you all were busy fighting over your robot, Makoto made a dezombifier. Flying through the air on his batman wings, Nathaniel shot us with the gun and here we are!" exclaimed Ben. 
+  "While you were all busy fighting over your robot, Makoto made a dezombifier. Flying through the air on his batman wings, Nathaniel shot us with the gun and here we are!" exclaimed Ben. 
   
   "Can you save the robot?" yelled Andrew impatiently.
   
