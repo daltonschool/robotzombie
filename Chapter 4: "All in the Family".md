@@ -68,6 +68,8 @@ Nicky Cahill
   
   "No, no, Andrew. This is a great story for the judging interview! How we rose from a zombie attack all the way to worlds. They won't even ask about our budget!" said Zach.
   
+  Then, out of nowhere, other Ben comes into the room playing an intense game of Flappy Birds. 
+  
   WE NEED A LOT OF CONVERSATION HERE!! <- just highlight funny personalities a #classic roboitcs build session-esq scene
 
 
