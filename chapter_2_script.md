@@ -10,8 +10,6 @@ here is a basic plot summary: okay so story: 1. they are building the robots wit
 	Liam volunteers to go find the zombies and he gets eaten 
 4. the final battle takes place and the children are victorious, because the zombies who turned them die everyone comes back and they're all one big happy family.
 
-Setting:
-Students are in the cafeteria, putting the finishing touches on their robots. Gordie is reading the newspaper in the corner. MSW is walking around saying "build robots faster".
 Dunno where Charlie, we'll figure that out later.
 
 uber drivers became zombies. This is where it all starts
@@ -24,14 +22,36 @@ Remember, don't get too dark
 
 Charlie, MSW, and Gordie were eaten...
 
-Everything seems hopeless and the kids fear for the worst.
+
+Setting:
+Students have left the fifth floor and are now assembled in the cafeteria, putting the finishing touches on their robots. The building is getting hotter as the zombies are getting closer and burning their way through the city. Gordie is reading the newspaper in the corner unaware of the current situation. MSW is walking around yelling "build robots faster." People are still unaware as to what happened to Davis. Julian follows his screams down to the end of the 5th floor, he runs after Davis to find him on the floor, tears in his eyes. Julian preparing for the worst says,
+
+Julian: Davis, what happened?
+
+Davis (his bottom lip trembling): Something tickled me!  
+
+Julian, knowing the pain that Davis has endured rushes to his side, and helps him up. Suddenly a crash erupts from behind them. They rush back to where everyone is congregated telling them that the fifth floor is no longer safe. Charlie suggests the cafeteria and everyone flocks downstairs. Zach and Andrew clinging to the robot, unable to part, or risk its damage. 
+
+Once down in the cafeteria everyone resumes what they were doing, except the fear of the zombies has increased and the freshmen are now balled on the floor sobbing. A slow and steady banging and clomping starts coming up the stairs. Everything seems hopeless and the kids fear for the worst.
 
 Julian says, "guys this is like reaallly reaally bad," in his hispanic accent to try to diffuse the tension, but no one see the humor in his "yoke."
 
-	Nathaniel inconspicuously creeps off into the darkness...
+Nathaniel inconspicuously creeps off into the darkness a clever grin on his face...
 
-Makoto and Daniel, still working on the robot, seem to make a great achievement. 
-The kids fear for their lives as the zombies chase them around the cafeteria, but come up with a plan:
+Makoto and Daniel, still working on the robot, seem to make a great achievement, but it's too late. The zombies are approaching fast. 
+
+Gordie peers up from his newspaper, finally coming to terms with the situation and he rises stating, "it's time."
+
+Charlie: "Bolt the doors, get the robots ready."
+
+As the kids scramble to find anything to bolt the doors with
+
+Dillon (looking up, fear in his eyes): We have left all the tools upstairs, all we brought was a robot cart.
+
+On queue the robots break into the cafeteria, the kids fear for their lives as the zombies chase them around the cafeteria.
+
+MSW comes up with a plan, to disassemble the cart and block the doors.
+
 They close off the cafeteria doors and lock the zombies inside to buy Mattori and Daniel some time while they are fixing the robot.
 
 Looking for a power source, Liam realizes his phone is out of power. In a fit of desperation, he shouts "PHONE CHARGER!" very loudly despite fears of attracting zombies. As everyone tries to shush him, he looks over at a nearby table and finds an iPhone charger sitting in plain sight.
