@@ -22,5 +22,11 @@
   - Dylan
   - Alex
 - Episode 2
+  - Julian
+  - Gordie
+  - Chris
 - Episode 3
+  - Jack
+  - Nicky
 - Episode 4
+  - 
