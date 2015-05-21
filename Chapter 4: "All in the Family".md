@@ -64,6 +64,9 @@ Nicky Cahill
   
   "While you all were busy fighting over your robot, Makoto made a dezombifier. Flying through the air on his batman wings, Nathaniel shot us with the gun and here we are!" exclaimed Ben. 
   
+  "Can you save the robot?" yelled Andrew impatiently.
+  
+  "No, no, Andrew. This is a great story for the judging interview! How we rose from a zombie attack all the way to worlds. They won't even ask about our budget!" said Zach.
   
   WE NEED A LOT OF CONVERSATION HERE!! <- just highlight funny personalities a #classic roboitcs build session-esq scene
 
