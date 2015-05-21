@@ -1,5 +1,8 @@
 # Characters in the __Robot Zombie__ saga
 ### * In order of appearance *
+
+TODO: descriptions
+
 - Episode 1
   - MSW
   - Devin
