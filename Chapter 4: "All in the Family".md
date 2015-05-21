@@ -74,4 +74,5 @@ Nicky Cahill
 
 
   - then finally Charlie MSW and Gordie walk in, and they all sit as one happy family
+  - Also need to make a good transition from episode 3
 
