@@ -3,6 +3,7 @@ Episode 4:
 authors:
 Emily Cohen 
 Nicky Cahill
+Ben Rothschild
 
   Still recovering from their lost man, the roboticists 
   
@@ -18,8 +19,8 @@ Nicky Cahill
   
   The students stared at him in disbelief. This was just what they need. 
   
-  "We've got this" shouted one student. 
-  "Let's go kill some zombies!" exclaimed the other. 
+  "We've got this!" Shouted Kira, ditching her 3d model of a miniature pony. 
+  "Let's go kill some zombies!" Mumbled Mattori, his mouth full of whole weat lox bagel. 
   
   While they were still mourning the loss of their loved one, the students proceeded full speed ahead. They
   ran to the elevator and waited. After a few minutes the elevator came and the students took it down to three.
@@ -35,8 +36,7 @@ Nicky Cahill
   kids regained their strength and, with the help of their robots, were able to defeat the zombies. 
   
   After all of the zombies were dead, the five remaining kids ran upstairs with their robots following close behind. 
-  Once they were upstairs and safe they mourned their losses of their valiant friends who died to the hideous 
-  zombies.
+  Once they were upstairs and safe they mourned their losses of their valiant friends who were lost in the fight.
 
   Zach and Andrew wrapped their arms around the robot and began to cry softly into agent 4174.
   
@@ -75,6 +75,7 @@ Nicky Cahill
   WE NEED A LOT OF CONVERSATION HERE!! <- just highlight funny personalities a #classic roboitcs build session-esq scene
 
 
-  - then finally Charlie MSW and Gordie walk in, and they all sit as one happy family
+  - then finally Charlie MSW and Gordie walk in, and they all sit as one happy family //can we please not have them come back to life?
+  
   - Also need to make a good transition from episode 3
 
