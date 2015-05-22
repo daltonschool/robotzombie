@@ -31,7 +31,7 @@ Nicky Cahill
   
   All hope was lost. All those still conscious, knew they were going to lose. But then something happened. One of the
   most incredible things that has ever occurred. Just as the students were about to give up, Roby Dick rolled in
-  with his three sidekicks agent 4174, agent 6051, and agent 9371. And all of a sudden, the tables turned. The 
+  with his three sidekicks Alexis of Atomic Theory, Jank Tank of Quantum Mechanics, and Brian Scalabrine of General Relativity. And all of a sudden, the tables turned. The 
   kids regained their strength and, with the help of their robots, were able to defeat the zombies. 
   
   After all of the zombies were dead, the five remaining kids ran upstairs with their robots following close behind. 
