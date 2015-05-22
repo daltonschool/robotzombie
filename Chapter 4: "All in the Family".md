@@ -5,15 +5,19 @@ Emily Cohen
 Nicky Cahill
 Ben Rothschild
 
-  Still recovering from their lost man, the roboticists 
+  The students retreated into the computer science room. Still recovering from their lost man, the roboticists sat in   silence until the heard the sound a someone munching on skinnypop. The students looked up.
   
-  THIS IS TRANSITION FROM CHAPTER 3
+  "Liam!?" Emily said with a hopeful look.
+  
+  But it wasn't Liam. The students looked around the room only to find Westley squatted in the corner making goat   
+  noises.
 
-
-  They knew they couldn't hold out much longer. The zombies were approaching and although they did know the 
-  school better, they were in no position to hold off an army of hungry zombies. They had to think fast. The "Liam 
-  experience" was not one they wanted to repeat. Just as everyone was beginning to fret, Nathaniel ran out of the
-  compsci lab flying! He had made himself a pair of batman wings.
+ "What" Westley said noticing the room was stairing at him. 
+ 
+  The students looked away and sat, sulking.They knew they couldn't hold out much longer. The zombies were   
+  approaching and although they did know the  school better, they were in no position to hold off an army of hungry 
+  zombies. They had to think fast. The "Liam experience" was not one they wanted to repeat. Just as everyone was   
+  beginning to fret, Nathaniel ran out of the  compsci lab flying! He had made himself a pair of batman wings.
   
   "Let's GOOOOOOO!!!" Nathaniel shouted as he flew through the hall. 
   
@@ -72,10 +76,7 @@ Ben Rothschild
   
   From behind the air conditioner a disheveled and wounded Christina Aguilera emerges. She steps on top of the robots and begins to sing Beautiful. Andrew whimpers.
   
-  WE NEED A LOT OF CONVERSATION HERE!! <- just highlight funny personalities a #classic roboitcs build session-esq scene
-
 
   - then finally Charlie MSW and Gordie walk in, and they all sit as one happy family //can we please not have them come back to life?
   
-  - Also need to make a good transition from episode 3
 
