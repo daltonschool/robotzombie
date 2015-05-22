@@ -72,9 +72,10 @@ Ben Rothschild
   
   "No, no, Andrew. This is a great story for the judging interview! How we rose from a zombie attack all the way to worlds. They won't even ask about our budget!" said Zach.
   
-  Then, out of nowhere, other Ben comes into the room playing an intense game of Flappy Birds. 
+  Then, out of nowhere, other Ben comes into the room playing an intense game of Flappy Birds. Ella grabs his phone out of his hand and is about to throw it across the room. But just then, she notices the game, and sits down and begins to play in the corner, breaking ben's high score in a matter of seconds. #girlpower
   
   From behind the air conditioner a disheveled and wounded Christina Aguilera emerges. She steps on top of the robots and begins to sing Beautiful. Andrew whimpers.
+  
   
 
   - then finally Charlie MSW and Gordie walk in, and they all sit as one happy family //can we please not have them come back to life?
