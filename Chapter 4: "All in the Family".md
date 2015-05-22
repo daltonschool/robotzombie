@@ -72,8 +72,6 @@ Nicky Cahill
   
   From behind the air conditioner a disheveled and wounded Christina Aguilera emerges. She steps on top of the robots and begins to sing Beautiful. Andrew whimpers.
   
-  Robert Downey Jr:
-  
   WE NEED A LOT OF CONVERSATION HERE!! <- just highlight funny personalities a #classic roboitcs build session-esq scene
 
 
