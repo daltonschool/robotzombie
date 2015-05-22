@@ -36,36 +36,29 @@ Once down in the cafeteria everyone resumes what they were doing, except the fea
 
 Julian says, "guys this is like reaallly reaally bad," in his hispanic accent to try to diffuse the tension, but no one see the humor in his "yoke."
 
-Nathaniel inconspicuously creeps off into the darkness a clever grin on his face...
+Nathaniel inconspicuously creeps off into the darkness, a clever grin on his face...
 
 Makoto and Daniel, still working on the robot, seem to make a great achievement, but it's too late. The zombies are approaching fast. 
 
-Gordie peers up from his newspaper, finally coming to terms with the situation and he rises stating, "it's time."
+Gordie peers up from his newspaper, finally coming to terms with the situation he rises crying, "it's time."
 
 Charlie: "Bolt the doors, get the robots ready."
 
-As the kids scramble to find anything to bolt the doors with
+As the kids scramble to find anything to bolt the doors with,Ben Rothschild is sitting in the middle of the floor, a clear obstacle playing on his phone, looking up every once in a while to ask "is there anything I can do?."
 
 Dillon (looking up, fear in his eyes): We have left all the tools upstairs, all we brought was a robot cart.
 
-On queue the robots break into the cafeteria, the kids fear for their lives as the zombies chase them around the cafeteria.
+On queue the zombies start banging on the cafeteria doors, screeches erupt while kids fear for their lives. 
 
-MSW comes up with a plan, to disassemble the cart and block the doors.
+MSW: Quick! Disassemble the cart and block the doors.
 
-They close off the cafeteria doors and lock the zombies inside to buy Mattori and Daniel some time while they are fixing the robot.
+They close off the cafeteria doors and postpone the zombies' entrance for a little, hoping to buy Mattori and Daniel some time while they fix the robot. Liam shouts, distracted by his desperate need for a power source: "PHONE CHARGER!" very loudly despite fear of attracting more zombies. As everyone tries to shush him, he looks over at a nearby table and finds an iPhone charger directly in front of him.
 
-Looking for a power source, Liam realizes his phone is out of power. In a fit of desperation, he shouts "PHONE CHARGER!" very loudly despite fears of attracting zombies. As everyone tries to shush him, he looks over at a nearby table and finds an iPhone charger sitting in plain sight.
+Just as the door starts breaking Mattori and Daniel figure out how to fix their power issue by hooking it up to Liam's new iPhone charger. Liam very reluctantly gives up his charger almost in tears dramatatically saying: "It is a sacrifice I am...will...ing to make." 
 
-Finally, in an interesting moment, Mattori and Daniel figure out how to fix their power issue by hooking it up to Liam's new iPhone charger.
+Andrew and Daniel, first passive-aggressively, then very aggressive, fight over who gets to line up their robot before the zombies come, but as they do this MSW, Charlie, and Gordie begin to pry the door open saying "okay, you guys have more than enough time to work, the assessment starts now whether you're ready or not." After a few minutes of struggling, they manage to get the door open and the zombies come pouring out.
 
-They sit outside the cafeteria with the robots, waiting for the zombies to break through the door
-
-Chris begins to dance as he is bored waiting for the zombies to do something, 
-	Ben Rothschild is sitting in the corner playing on his phone, looking up every once in a while to ask "is there anything I can do?"
-	Andrew and Daniel, first passive-aggressively, then very aggressive, fight over who gets to line up their robot before the zombies come
-MSW, Charlie, and Gordie begin to pry the door open saying "okay, you guys have more than enough time to work, the assessment starts now whether you're ready or not."
-	
-After a few minutes of struggling, they manage to get the door open and the zombies come pouring out
+The zombies have made their way over to the easiest target, the clump of freshemn on the floor. The room is filled with the sounds of a low growl, coming from the zombies, mixed with the sounds of children screaming, and suddenly a quiet song erupts from the background, as blond zombie erupts into song. Without hesitation Emily joins hands with what she thought to be her former friend Briteny, this potentially life threatening zombie, and starts dancing and singing along with her. Chris begins to dance to the music as he is bored waiting for action.
 
 Gordie tries to hop on his vespa and scooter away, but the ignition just isn't cooperating with him and the zombies overtake him
 
