@@ -21,3 +21,13 @@ robot with a big stomper (literally a giant hammer on an arm)
 cannonbot that shoots the zombies
 
 Remember, don't get too dark
+
+Scene Opens:
+
+Robots sit, almost completed, with students putting finishing touches on their robots. One robot has the air compressor from downstairs taped to a bare bones chassis. The three inch nail gun
+is glued to the robot. This is cannonbot, created by General Relativity. 
+
+Sam walks into the cafeteria, he hasn't been seen since it all started. "Hey guys" he says. Everyone stares at him in disbelief. "Sam, you showed up to a build session!" Zach remarks.
+"Yeah sorry guys, I gotta go" he says and walks out. Everyone resumes working
+
+Quantum's robot a chassis supporting a huge motor, 
