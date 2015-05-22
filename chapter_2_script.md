@@ -23,14 +23,31 @@ Remember, don't get too dark
 
 
 ###**Episode 2**
-Setting:
-Students have left the fifth floor and are now assembled in the cafeteria, putting the finishing touches on their robots. The building is getting hotter as the zombies are getting closer and burning their way through the city. Gordie is reading the newspaper in the corner unaware of the current situation. MSW is walking around yelling "build robots faster." People are still unaware as to what happened to Davis. Julian follows his screams down to the end of the 5th floor, he runs after Davis to find him on the floor, tears in his eyes. Julian preparing for the worst says,
+######**A Few Days Later**
 
-Julian: Davis, what happened?
+*Open* with a shot moving down the fifth floor hallway. Locker doors have been scorched, ripped off their hinges, and dented by the testing of various iterations of the students' robots. A flashback of the ending scence from Epsiode reminds us that Davis is still lost. The camera pans to the Cafeteria where it seems everyone in the building has been able to assemble. Students work furiously on their robots as the building gets hotter and the zombies are getting closer burning their way through the city. Gordie is reading the newspaper in the corner unaware of the current situation.   
+
+The ominous music cuts out as the camera moves to MSW sitting at the other end of the table zooming in on MSW's face. His head snaps up as he looks away from his computer and the silence is interupted by a familiar order: 
+
+*MSW*: build robots!  
+
+A group of students convene at the next table over. The freshman boys are in tears, simply dejected. 
+
+*Laeo* (suddenly serious): Stop snivelling! I know we experienced a tragic loss yesterday. He shouldn't have attracted the zombies by screaming after me and OtherBen in the staircase but once the zombies got Ryan there was nothing we could do about the fever. He's the reason we were all able to make it here. 
+
+*Makoto* : We're safe for now, but we have a lot to do. 
+
+*Charlie* : We have to organize! We need a group in charge of cooking, a building group, a coding group, a defense group...(50 more) and a shift so that we can all do our tasks with maximum efficiency and work is being done around the clock. 
+
+*Julian* (to Ava): Oh no! I forgot my home-made kale juice on the fifth floor! Do you want to come with me to get it?
+
+Julian and Ava reach the fifth floor and hear Davis' screams down to the end of the 5th floor, they start to run following the incessant stream of cries and wimpers. The camera switches to Davis, tears in his eyes, crumpled in a locker that he had survived in. 
+
+Julian (preparing for the worst): Davis, what happened?
 
 Davis (his bottom lip trembling): Something tickled me!  
 
-Julian, knowing the pain that Davis has endured rushes to his side, and helps him up. Suddenly a crash erupts from behind them. They rush back to where everyone is congregated telling them that the fifth floor is no longer safe. Charlie suggests the cafeteria and everyone flocks downstairs. Zach and Andrew clinging to the robot, unable to part, or risk its damage. 
+Julian, knowing the pain that Davis has endured rushes to his side, and helps him up. Suddenly a crash erupts from behind them. They rush back to where everyone is congregated telling them that the fifth floor is no longer safe. They had moved, even with Zach and Andrew clinging to their beloved robot, down to the Cafeteria just in time. 
 
 Once down in the cafeteria everyone resumes what they were doing, except the fear of the zombies has increased and the freshmen are now balled on the floor sobbing. A slow and steady banging and clomping starts coming up the stairs. Everything seems hopeless and the kids fear for the worst.
 
