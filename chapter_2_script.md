@@ -1,6 +1,7 @@
 # Chapter 2: Cafeteria Drama
 **Writers: Devin, Georgia, Jacob, Makoto, Mattori, Westley*
 
+###**Notes**
 Apparently the basic plot of our episode will be a large battle between the robots/humans and the zombies. In the end of the episode, the zombies get through and get someone.
 Liam gets kidnapped in episode 1 by another school. 
 
@@ -20,9 +21,8 @@ cannonbot that shoots the zombies
 
 Remember, don't get too dark
 
-Charlie, MSW, and Gordie were eaten...
 
-
+###**Episode 2**
 Setting:
 Students have left the fifth floor and are now assembled in the cafeteria, putting the finishing touches on their robots. The building is getting hotter as the zombies are getting closer and burning their way through the city. Gordie is reading the newspaper in the corner unaware of the current situation. MSW is walking around yelling "build robots faster." People are still unaware as to what happened to Davis. Julian follows his screams down to the end of the 5th floor, he runs after Davis to find him on the floor, tears in his eyes. Julian preparing for the worst says,
 
