@@ -57,7 +57,7 @@ Ben Rothschild
   "The is all your fault" Yelled Andrew.
   "What are you talking about?" exclaimed Zach.
   
-  The two continued in this manor until Dillon emerged from the crowd of students observing the fight. 
+  The two continued in this manner until Dillon emerged from the crowd of students observing the fight. 
   
   "Guys," Dillon said as the voice of reason. "We need to stop arguing. We only have each other now." 
   
@@ -75,9 +75,11 @@ Ben Rothschild
   Then, out of nowhere, other Ben comes into the room playing an intense game of Flappy Birds. Ella grabs his phone out of his hand and is about to throw it across the room. But just then, she notices the game, and sits down and begins to play in the corner, breaking ben's high score in a matter of seconds. #girlpower
   
   From behind the air conditioner a disheveled and wounded Christina Aguilera emerges. She steps on top of the robots and begins to sing Beautiful. Andrew whimpers.
-  
-  
 
-  - then finally Charlie MSW and Gordie walk in, and they all sit as one happy family //can we please not have them come back to life?
+then finally Charlie MSW and Gordie walk in, and they all sit as one happy family
+
+A battered robot, Brian Scalabrine, rolls into the Cafeteria as all the students and teachers are watching. Loaded into its launcher is... a bomb! Even without a face, you can see that the still oblivious and now-sentient Scalabrine believes that by launching this bomb, it will save the day and kill the zombies. Dylan and Robert rush up to the robot, and, after a few minutes, convince that the zombie threat is no longer an issue within the school. Brian goes to launch the bomb out the window, so that it will not harm any of the kids inside the building. Yet, Brian Scalibrine being Brian Scalibrine, the robot plops down the bomb a few feed from its launcher; no where near the window. As Davis shouts, "NOOOOOO," the bomb explodes, taking the children with them. 
+TWENTY YEARS LATER
+Robert Downey Jr. is seen walking across the aftermath in the future, and the dissapointment is visible on his face, as he shouts, "SCALIBRINE!!!!"
   
 
